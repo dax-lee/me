@@ -5,7 +5,7 @@ permalink: /interests/
 ---
 
 ### My various music ventures and taste
-When I turned 8 years old, I started writing music using a crappy Windows 7 laptop and the free version of a music software called Ableton Live 9. 
+When I turned 8 years old, I started writing music using a crappy Windows 7 laptop and the free version of a music software called Ableton Live 9.
 Those early experiences aren't very well documented, but you can listen to the earliest renders of my hideous creations on (this page. <- insert the link :3)
 In 2021, I started to take things a bit more seriously when it came to production quality and quantity. 
 My supportive parents allowed a distrobution service subscription, meaning I could now put my music online for all of the internet to (not really) enjoy!
